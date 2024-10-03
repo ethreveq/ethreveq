@@ -17,6 +17,8 @@ aku syng feixiao.
 
 ...
 
+![fei](https://static.wikia.nocookie.net/houkai-star-rail/images/8/81/Sticker_PPG_17_Feixiao_02.png/revision/latest?cb=20240914212631)
+
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
 
