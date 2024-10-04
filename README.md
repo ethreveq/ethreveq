@@ -21,4 +21,6 @@ aku syng feixiao.
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
+![](https://komarev.com/ghpvc/?username=ethreveq&color=52afc4)
+
 
