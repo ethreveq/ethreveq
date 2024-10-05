@@ -13,14 +13,12 @@ aku syng [feixiao](https://feixiaoluvr.straw.page).
 
 《 𖧷 》⠀int :⠀the same fandom as me (genshin, hsr, wuwa, fpe) likes mozeqiu!! (pls..) feixiao <3.
 
-《 𖧷 》⠀byf : I sometimes makes dirty jokes lightly (pls tell me if you're uncomfortable), and literally always talk abt my fave ships (mostly hsr), I usually is very quiet and                does NOT interact with people, i want them to interact with me first. So if you're interested on interacting with me, come on :3
+《 𖧷 》⠀byf : I sometimes makes dirty jokes lightly (pls tell me if you're uncomfortable), and literally always talk abt my fave ships (mostly hsr), I usually is very quiet and                does NOT interact with people, i want them to interact with me first. So if you're interested on interacting with me, come on. :3 Im mostly on the HYV area (both                  indonesian server and safe server). Also pls do not copy or take inspo from me, i would gladly block you. 
 
 ...
 
 ![fei](https://static.wikia.nocookie.net/houkai-star-rail/images/8/81/Sticker_PPG_17_Feixiao_02.png/revision/latest?cb=20240914212631)
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
-
-![](https://komarev.com/ghpvc/?username=ethreveq&color=52afc4)
 
 
